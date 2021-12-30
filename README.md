@@ -1,1 +1,1 @@
-![image](https://github.com/worldpapa/engCV/blob/main/SesangKimCV.pdf)
+![image](https://github.com/worldpapa/engCV/blob/main/WorldKimCV.png)
